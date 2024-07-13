@@ -1,1 +1,2 @@
-# Climate-Orgs
+# Sean F. Sullivan
+## Some things, sometimes
